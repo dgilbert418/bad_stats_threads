@@ -2,20 +2,54 @@
 
 ### John Campbell
 
-03/22/2022 - [Jessica from Queensland does some excess deaths bad stats](https://twitter.com/thebadstats/status/1506459743723819016) ([threadreader](https://threadreaderapp.com/thread/1506459743723819016.html))
+03/22/2022 - [Jessica from Queensland does some excess deaths bad stats](https://twitter.com/thebadstats/status/1506459743723819016) ([unroll](https://threadreaderapp.com/thread/1506459743723819016.html))
  
 03/21/2022 - [Dr. Been and vaccine brain damage](https://twitter.com/thebadstats/status/1506083811032911872)
 
-03/11/2022 - [Cambell admits he's wrong but...](https://twitter.com/thebadstats/status/1502479679936090115) ([threadreader](https://threadreaderapp.com/thread/1502479679936090115.html))
+03/11/2022 - [Cambell admits he's wrong but...](https://twitter.com/thebadstats/status/1502479679936090115) ([unroll](https://threadreaderapp.com/thread/1502479679936090115.html))
 
-03/09/2022 [how it started / how it's going](https://twitter.com/thebadstats/status/1501736675168292870) ([threadreader](https://threadreaderapp.com/thread/1501736675168292870.html))
+03/09/2022 [how it started / how it's going](https://twitter.com/thebadstats/status/1501736675168292870) ([unroll](https://threadreaderapp.com/thread/1501736675168292870.html))
 
-03/06/2022 [Campbell won't address criticism](https://twitter.com/thebadstats/status/1500577260050345986) ([threadreader](https://threadreaderapp.com/thread/1500577260050345986.html))
+03/06/2022 [Campbell won't address criticism](https://twitter.com/thebadstats/status/1500577260050345986) ([unroll](https://threadreaderapp.com/thread/1500577260050345986.html))
 
+02/22/2022 [Campbell on Russell Brand](https://twitter.com/thebadstats/status/1496189887103795203) ([unroll](https://threadreaderapp.com/thread/1496189887103795203.html))
 
+02/02/2022 [Campbell on natural immunity](https://twitter.com/thebadstats/status/1489026814974455808) ([unroll](https://threadreaderapp.com/thread/1489026814974455808.html))
+
+01/23/2022 [Waning efficacy?](https://twitter.com/thebadstats/status/1485314815681708033) ([unroll](https://threadreaderapp.com/thread/1485314815681708033.html))
 
 ### DarkHorse Podcast
 
-03/19/2022 - [DarkHorse episode 119](https://twitter.com/thebadstats/status/1505307560089333760)  ([threadreader](https://threadreaderapp.com/thread/1505307560089333760.html))
+03/19/2022 - [DarkHorse episode 119](https://twitter.com/thebadstats/status/1505307560089333760)  ([unroll](https://threadreaderapp.com/thread/1505307560089333760.html))
 
-03/05/2022 [DarkHorse episode 117](https://twitter.com/thebadstats/status/1500290884406968328) ([threadreader]()https://threadreaderapp.com/thread/1500290884406968328.html)
+03/05/2022 [DarkHorse episode 117](https://twitter.com/thebadstats/status/1500290884406968328) ([unroll](https://threadreaderapp.com/thread/1500290884406968328.html))
+
+02/26/2022 [Darkhorse episode 116](https://twitter.com/thebadstats/status/1497758356261376002) ([unroll](https://threadreaderapp.com/thread/1497758356261376002.html))
+
+02/25/2022 [Russian invasion and trans pronouns](https://twitter.com/thebadstats/status/1497395477989388288) ([unroll](https://threadreaderapp.com/thread/1497395477989388288.html))
+
+02/05/2022 [Bret and Heather call me out](https://twitter.com/thebadstats/status/1490017879055421446) ([unroll](https://threadreaderapp.com/thread/1490017879055421446.html))
+
+01/28/2022 [Darkhorse episode 113](https://twitter.com/thebadstats/status/1487228525211881473) ([unroll](https://threadreaderapp.com/thread/1487228525211881473.html))
+
+### Jordan Peterson
+
+02/15/2022 [JBP on the trucker convoy](https://twitter.com/thebadstats/status/1493745365522128899) ([unroll](https://threadreaderapp.com/thread/1493745365522128899.html))
+
+01/25/2022 [Jordan Peterson on climate change](https://twitter.com/thebadstats/status/1486103450446303234) ([unroll](https://threadreaderapp.com/thread/1486103450446303234.html))
+
+01/27/2021 [Bundling oppression in prices](https://twitter.com/thebadstats/status/1354463895281254401) ([unroll](https://threadreaderapp.com/thread/1354463895281254401.html))
+
+
+
+### Eric Weinstein
+
+02/12/2022 [Eric with Hal Puthoff](https://twitter.com/thebadstats/status/1492582218358673409) ([unroll](https://threadreaderapp.com/thread/1492582218358673409.html))
+
+### Joe Rogan
+
+01/31/2022 [Joe Rogan's intellectual curiosity](https://twitter.com/thebadstats/status/1488375235195801600) ([unroll](https://threadreaderapp.com/thread/1488375235195801600.html))
+
+01/26/2022 [Joe Rogan calls me out](https://twitter.com/thebadstats/status/1486527499148279808) ([unroll](https://threadreaderapp.com/thread/1486527499148279808.html))
+
+
