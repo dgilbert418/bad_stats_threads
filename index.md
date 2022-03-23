@@ -3,8 +3,6 @@
 ### John Campbell
 
 03/22/2022 - [Jessica from Queensland does some excess deaths bad stats](https://twitter.com/thebadstats/status/1506459743723819016) ([unroll](https://threadreaderapp.com/thread/1506459743723819016.html))
- 
-03/21/2022 - [Dr. Been and vaccine brain damage](https://twitter.com/thebadstats/status/1506083811032911872)
 
 03/11/2022 - [Cambell admits he's wrong but...](https://twitter.com/thebadstats/status/1502479679936090115) ([unroll](https://threadreaderapp.com/thread/1502479679936090115.html))
 
@@ -18,7 +16,7 @@
 
 01/23/2022 [Waning efficacy?](https://twitter.com/thebadstats/status/1485314815681708033) ([unroll](https://threadreaderapp.com/thread/1485314815681708033.html))
 
-### DarkHorse Podcast
+### DarkHorse Podcast (Bret Weinstein and Heather Heying)
 
 03/19/2022 - [DarkHorse episode 119](https://twitter.com/thebadstats/status/1505307560089333760)  ([unroll](https://threadreaderapp.com/thread/1505307560089333760.html))
 
@@ -32,19 +30,33 @@
 
 01/28/2022 [Darkhorse episode 113](https://twitter.com/thebadstats/status/1487228525211881473) ([unroll](https://threadreaderapp.com/thread/1487228525211881473.html))
 
+01/22/2022 [Bret listens to Campbell](https://twitter.com/thebadstats/status/1485064253207838720) ([unroll](https://threadreaderapp.com/thread/1485064253207838720.html))
+
+01/22/2022 [Every disease was a lab leak](https://twitter.com/thebadstats/status/1485046832518422536) ([unroll](https://threadreaderapp.com/thread/1485046832518422536.html))
+
+01/16/2022 [Faux chicken is postmodernism](https://twitter.com/thebadstats/status/1482643922627149825) ([unroll](https://threadreaderapp.com/thread/1482643922627149825.html))
+
+01/15/2022 [Darkhorse episode 111](https://twitter.com/thebadstats/status/1482494457274454021) ([unroll](https://twitter.com/thebadstats/status/1482494457274454021))
+
+01/08/2022 [Darkhorse episode ???](https://twitter.com/thebadstats/status/1479981499961077760) ([unroll](https://threadreaderapp.com/thread/1479981499961077760.html))
+
 ### Jordan Peterson
 
 02/15/2022 [JBP on the trucker convoy](https://twitter.com/thebadstats/status/1493745365522128899) ([unroll](https://threadreaderapp.com/thread/1493745365522128899.html))
 
 01/25/2022 [Jordan Peterson on climate change](https://twitter.com/thebadstats/status/1486103450446303234) ([unroll](https://threadreaderapp.com/thread/1486103450446303234.html))
 
+01/18/2022 [Covid variants are a conspiracy theory](https://twitter.com/thebadstats/status/1483452764340600842) ([unroll](https://threadreaderapp.com/thread/1483452764340600842.html))
+
+01/07/2022 [Self-defeating ramble about god](https://twitter.com/thebadstats/status/1479718890863161345) ([unroll](https://threadreaderapp.com/thread/1479718890863161345.html))
+
 01/27/2021 [Bundling oppression in prices](https://twitter.com/thebadstats/status/1354463895281254401) ([unroll](https://threadreaderapp.com/thread/1354463895281254401.html))
-
-
 
 ### Eric Weinstein
 
 02/12/2022 [Eric with Hal Puthoff](https://twitter.com/thebadstats/status/1492582218358673409) ([unroll](https://threadreaderapp.com/thread/1492582218358673409.html))
+
+01/13/2022 [Eric hypocrisy du jour](https://twitter.com/thebadstats/status/1481748173991264261) ([unroll](https://threadreaderapp.com/thread/1481748173991264261.html))
 
 ### Joe Rogan
 
@@ -52,4 +64,10 @@
 
 01/26/2022 [Joe Rogan calls me out](https://twitter.com/thebadstats/status/1486527499148279808) ([unroll](https://threadreaderapp.com/thread/1486527499148279808.html))
 
+### Mobeen Syed 
 
+03/21/2022 [Vaccine brain damage](https://twitter.com/thebadstats/status/1506083811032911872)
+
+### Rebel Wisdom
+
+01/01/2022 [Everyone's an NPC](https://twitter.com/thebadstats/status/1477375453623209987) ([unroll](https://threadreaderapp.com/thread/1477375453623209987.html))
