@@ -18,6 +18,8 @@
 
 11/17/2021 [Covid and vitamin D](https://twitter.com/thebadstats/status/1461083710921457665) ([unroll](https://twitter.com/thebadstats/status/1461083710921457665))
 
+10/09/2021 [Lazy indignant response to criticism](https://twitter.com/thebadstats/status/1446917361777315842) ([unroll](https://threadreaderapp.com/thread/1446917361777315842.html))
+
 ### DarkHorse Podcast (Bret Weinstein and Heather Heying)
 
 03/19/2022 - [DarkHorse episode 119](https://twitter.com/thebadstats/status/1505307560089333760)  ([unroll](https://threadreaderapp.com/thread/1505307560089333760.html))
@@ -52,6 +54,8 @@
 
 11/14/2021 [Ivermectin update](https://twitter.com/thebadstats/status/1459996562545725444) ([unroll](https://threadreaderapp.com/thread/1459996562545725444.html))
 
+10/16/2021 [Correlation and causation](https://twitter.com/thebadstats/status/1449510886666747906) ([unroll](https://threadreaderapp.com/thread/1449510886666747906.html))
+
 ### Jordan Peterson
 
 02/15/2022 [JBP on the trucker convoy](https://twitter.com/thebadstats/status/1493745365522128899) ([unroll](https://threadreaderapp.com/thread/1493745365522128899.html))
@@ -71,6 +75,10 @@
 01/13/2022 [Eric hypocrisy du jour](https://twitter.com/thebadstats/status/1481748173991264261) ([unroll](https://threadreaderapp.com/thread/1481748173991264261.html))
 
 11/09/2021 [Eric's Edge article predicted everything](https://twitter.com/thebadstats/status/1457991514420756486) ([unroll](https://threadreaderapp.com/thread/1457991514420756486.html))
+
+10/15/2021 [Eric's clubhouse freakout video](https://twitter.com/thebadstats/status/1449190410341941255) ([unroll](https://threadreaderapp.com/thread/1449190410341941255.html))
+
+10/13/2021 [Eric on discord before and after](https://twitter.com/thebadstats/status/1448491096586133504) ([unroll])(https://threadreaderapp.com/thread/1448491096586133504.html)
 
 ### Joe Rogan
 
@@ -92,6 +100,10 @@
 
 12/30/2021 [Thiel tired talking points](https://twitter.com/thebadstats/status/1476712400585854979) ([unroll](https://threadreaderapp.com/thread/1476712400585854979.html))
 
-### Thotz
+### Sam Harris
+
+10/30/2021 [Holocaust denial isn't like antivaxism](https://twitter.com/thebadstats/status/1454596746139426817) ([unroll](https://threadreaderapp.com/thread/1454596746139426817.html))
+
+### General Thoughts
 
 12/10/2021 [Trouble with podcasts](https://twitter.com/thebadstats/status/1469229564421304320) ([unroll](https://threadreaderapp.com/thread/1469229564421304320.html))
