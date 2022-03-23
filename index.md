@@ -62,7 +62,12 @@
 
 07/28/2021 [Bret on JBP's predictions](https://twitter.com/thebadstats/status/1420510158141026304) ([unroll](https://threadreaderapp.com/thread/1420510158141026304.html))
 
+07/08/2021 [A bad Bret prediction](https://twitter.com/thebadstats/status/1413344392346148872) ([unroll](https://threadreaderapp.com/thread/1413344392346148872.html))
+
 07/04/2021 [Bret's e-mails at Evergreen](https://twitter.com/thebadstats/status/1400991754996781057) ([unroll](https://threadreaderapp.com/thread/1400991754996781057.html))
+
+12/28/2020 [Totally not transphobic](https://twitter.com/thebadstats/status/1343544134770905089) ([unroll](https://threadreaderapp.com/thread/1343544134770905089.html))
+
 
 ### Jordan Peterson
 
@@ -75,6 +80,10 @@
 01/07/2022 [Self-defeating ramble about god](https://twitter.com/thebadstats/status/1479718890863161345) ([unroll](https://threadreaderapp.com/thread/1479718890863161345.html))
 
 01/27/2021 [Bundling oppression in prices](https://twitter.com/thebadstats/status/1354463895281254401) ([unroll](https://threadreaderapp.com/thread/1354463895281254401.html))
+
+03/26/2021 [Some political inanity](https://twitter.com/thebadstats/status/1375524522174996480) ([unroll](https://threadreaderapp.com/thread/1375524522174996480.html))
+
+02/25/2021 [Transphobia](https://twitter.com/thebadstats/status/1365056158155816969) ([unroll](https://threadreaderapp.com/thread/1365056158155816969.html))
 
 ### Eric Weinstein
 
