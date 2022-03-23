@@ -16,6 +16,8 @@
 
 01/23/2022 [Waning efficacy?](https://twitter.com/thebadstats/status/1485314815681708033) ([unroll](https://threadreaderapp.com/thread/1485314815681708033.html))
 
+11/17/2021 [Covid and vitamin D](https://twitter.com/thebadstats/status/1461083710921457665) ([unroll](https://twitter.com/thebadstats/status/1461083710921457665))
+
 ### DarkHorse Podcast (Bret Weinstein and Heather Heying)
 
 03/19/2022 - [DarkHorse episode 119](https://twitter.com/thebadstats/status/1505307560089333760)  ([unroll](https://threadreaderapp.com/thread/1505307560089333760.html))
@@ -40,6 +42,16 @@
 
 01/08/2022 [Darkhorse episode ???](https://twitter.com/thebadstats/status/1479981499961077760) ([unroll](https://threadreaderapp.com/thread/1479981499961077760.html))
 
+12/18/2021 [Everything's a conspiracy](https://twitter.com/thebadstats/status/1472352104840794113) ([unroll])(https://threadreaderapp.com/thread/1472352104840794113.html)
+
+12/4/2021 [Darkhorse episode 104](https://twitter.com/thebadstats/status/1467257560612753409) ([unroll](https://threadreaderapp.com/thread/1467257560612753409.html))
+
+11/27/2021 [Darkhorse episode ???](https://twitter.com/thebadstats/status/1464786260950601741) ([unroll](https://threadreaderapp.com/thread/1464786260950601741.html))
+
+11/14/2021 [Giraffes and fact-checkers](https://twitter.com/thebadstats/status/1460072305816571904) ([unroll](https://threadreaderapp.com/thread/1460072305816571904.html))
+
+11/14/2021 [Ivermectin update](https://twitter.com/thebadstats/status/1459996562545725444) ([unroll](https://threadreaderapp.com/thread/1459996562545725444.html))
+
 ### Jordan Peterson
 
 02/15/2022 [JBP on the trucker convoy](https://twitter.com/thebadstats/status/1493745365522128899) ([unroll](https://threadreaderapp.com/thread/1493745365522128899.html))
@@ -58,6 +70,8 @@
 
 01/13/2022 [Eric hypocrisy du jour](https://twitter.com/thebadstats/status/1481748173991264261) ([unroll](https://threadreaderapp.com/thread/1481748173991264261.html))
 
+11/09/2021 [Eric's Edge article predicted everything](https://twitter.com/thebadstats/status/1457991514420756486) ([unroll](https://threadreaderapp.com/thread/1457991514420756486.html))
+
 ### Joe Rogan
 
 01/31/2022 [Joe Rogan's intellectual curiosity](https://twitter.com/thebadstats/status/1488375235195801600) ([unroll](https://threadreaderapp.com/thread/1488375235195801600.html))
@@ -71,3 +85,13 @@
 ### Rebel Wisdom
 
 01/01/2022 [Everyone's an NPC](https://twitter.com/thebadstats/status/1477375453623209987) ([unroll](https://threadreaderapp.com/thread/1477375453623209987.html))
+
+12/19/2021 [Jordan Hall nonsensical ramble](https://twitter.com/thebadstats/status/1472682035504320515) ([unroll](https://threadreaderapp.com/thread/1472682035504320515.html))
+
+### Peter Thiel
+
+12/30/2021 [Thiel tired talking points](https://twitter.com/thebadstats/status/1476712400585854979) ([unroll](https://threadreaderapp.com/thread/1476712400585854979.html))
+
+### Thotz
+
+12/10/2021 [Trouble with podcasts](https://twitter.com/thebadstats/status/1469229564421304320) ([unroll](https://threadreaderapp.com/thread/1469229564421304320.html))
