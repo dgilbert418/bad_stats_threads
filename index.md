@@ -44,7 +44,7 @@
 
 01/08/2022 [Darkhorse episode ???](https://twitter.com/thebadstats/status/1479981499961077760) ([unroll](https://threadreaderapp.com/thread/1479981499961077760.html))
 
-12/18/2021 [Everything's a conspiracy](https://twitter.com/thebadstats/status/1472352104840794113) ([unroll])(https://threadreaderapp.com/thread/1472352104840794113.html)
+12/18/2021 [Everything's a conspiracy](https://twitter.com/thebadstats/status/1472352104840794113) ([unroll](https://threadreaderapp.com/thread/1472352104840794113.html))
 
 12/4/2021 [Darkhorse episode 104](https://twitter.com/thebadstats/status/1467257560612753409) ([unroll](https://threadreaderapp.com/thread/1467257560612753409.html))
 
@@ -55,6 +55,14 @@
 11/14/2021 [Ivermectin update](https://twitter.com/thebadstats/status/1459996562545725444) ([unroll](https://threadreaderapp.com/thread/1459996562545725444.html))
 
 10/16/2021 [Correlation and causation](https://twitter.com/thebadstats/status/1449510886666747906) ([unroll](https://threadreaderapp.com/thread/1449510886666747906.html))
+
+08/07/2021 [No clean data on vaccines](https://twitter.com/thebadstats/status/1424139293769887745) ([unroll](https://threadreaderapp.com/thread/1424139293769887745.html))
+
+08/31/2021 [Heather is statistically illiterate](https://twitter.com/thebadstats/status/1421658067553243142) ([unroll](https://threadreaderapp.com/thread/1421658067553243142.html))
+
+07/28/2021 [Bret on JBP's predictions](https://twitter.com/thebadstats/status/1420510158141026304) ([unroll](https://threadreaderapp.com/thread/1420510158141026304.html))
+
+07/04/2021 [Bret's e-mails at Evergreen](https://twitter.com/thebadstats/status/1400991754996781057) ([unroll](https://threadreaderapp.com/thread/1400991754996781057.html))
 
 ### Jordan Peterson
 
@@ -74,11 +82,23 @@
 
 01/13/2022 [Eric hypocrisy du jour](https://twitter.com/thebadstats/status/1481748173991264261) ([unroll](https://threadreaderapp.com/thread/1481748173991264261.html))
 
-11/09/2021 [Eric's Edge article predicted everything](https://twitter.com/thebadstats/status/1457991514420756486) ([unroll](https://threadreaderapp.com/thread/1457991514420756486.html))
+11/09/2021 [Eric's Edge article predicted everything part 2](https://twitter.com/thebadstats/status/1457991514420756486) ([unroll](https://threadreaderapp.com/thread/1457991514420756486.html))
 
 10/15/2021 [Eric's clubhouse freakout video](https://twitter.com/thebadstats/status/1449190410341941255) ([unroll](https://threadreaderapp.com/thread/1449190410341941255.html))
 
-10/13/2021 [Eric on discord before and after](https://twitter.com/thebadstats/status/1448491096586133504) ([unroll])(https://threadreaderapp.com/thread/1448491096586133504.html)
+10/13/2021 [Eric on discord before and after](https://twitter.com/thebadstats/status/1448491096586133504) ([unroll](https://threadreaderapp.com/thread/1448491096586133504.html))
+
+09/25/2021 [Eric's edge article predicted everything part 1](https://twitter.com/thebadstats/status/1441699915361513482) ([unroll](https://threadreaderapp.com/thread/1441699915361513482.html))
+
+07/30/2021 [Eric on public health messaging](https://twitter.com/thebadstats/status/1421359777586712578) ([unroll](https://threadreaderapp.com/thread/1421359777586712578.html))
+
+07/18/2021 [Tim Dillon on Eric](https://twitter.com/thebadstats/status/1406140717903212545) ([unroll](https://threadreaderapp.com/thread/1406140717903212545.html))
+
+07/02/2021 [Eric on Bitcoin podcast](https://twitter.com/thebadstats/status/1400343942600695814) ([unroll](https://threadreaderapp.com/thread/1400343942600695814.html))
+
+05/20/2021 [Eric not taking the criticism well](https://twitter.com/thebadstats/status/1395586155882500098) ([unroll](https://threadreaderapp.com/thread/1395586155882500098.html))
+
+04/13/2021 [Eric is paranoid](https://twitter.com/thebadstats/status/1382022386749382657) ([unroll](https://threadreaderapp.com/thread/1382022386749382657.html))
 
 ### Joe Rogan
 
