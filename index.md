@@ -2,6 +2,20 @@
 
 ### John Campbell
 
+08/09/2022 - [He's a Tory](https://twitter.com/thebadstats/status/1556938927763644416)
+
+08/08 2022 - [Trying to be homophobic about monkeypox](https://twitter.com/thebadstats/status/1556819369904066560)
+
+07/21/2022 - [Incredible spin on pro-vax Singapore paper](https://twitter.com/thebadstats/status/1550136321024266240)
+
+06/16/2022 - [Sexual Networks = sex cults](https://twitter.com/thebadstats/status/1537466792406155264)
+
+05/21/2022 - [JC's transformation over time](https://twitter.com/thebadstats/status/1528109077577969665)
+
+05/04/2022 - [Holy magic disclaimers!](https://twitter.com/thebadstats/status/1521945397349953536)
+
+04/11/2022 - [He says he'll address the TOGETHER trial (but never does)](https://twitter.com/thebadstats/status/1513644852772171780)
+
 03/22/2022 - [Jessica from Queensland does some excess deaths bad stats](https://twitter.com/thebadstats/status/1506459743723819016) ([unroll](https://threadreaderapp.com/thread/1506459743723819016.html))
 
 03/11/2022 - [Cambell admits he's wrong but...](https://twitter.com/thebadstats/status/1502479679936090115) ([unroll](https://threadreaderapp.com/thread/1502479679936090115.html))
@@ -21,6 +35,60 @@
 10/09/2021 [Lazy indignant response to criticism](https://twitter.com/thebadstats/status/1446917361777315842) ([unroll](https://threadreaderapp.com/thread/1446917361777315842.html))
 
 ### DarkHorse Podcast (Bret Weinstein and Heather Heying)
+
+08/16/2022 - ["If circumcision was simply negative, selection would have eliminated it."](https://twitter.com/thebadstats/status/1559685004233388032)
+
+08/06/2022 - [Covid could not have come from nature; virologists just want grants](https://twitter.com/thebadstats/status/1556121524532260865)
+
+08/02/2022 - [Hanged guys ejaculate for a last chance of inseminating someone](https://twitter.com/thebadstats/status/1554531512346742785)
+
+08/01/2022 - [Bret is triggered by the Game Theory song](https://twitter.com/thebadstats/status/1554115141414711296)
+
+08/01/2022 - [Bret and Peter Boghossian](https://twitter.com/thebadstats/status/1554080269837037568)
+
+07/30/2022 - [Darkhorse Podcast ??? - Why'd they give Fauci Paxlovid instead of IVM?](https://twitter.com/thebadstats/status/1553606501821845504)
+
+07/20/2022 - [Heather is breaking people's brains](https://twitter.com/thebadstats/status/1549956869506023424)
+
+07/20/2022 - [Bret and Michael Shellenberger](https://twitter.com/thebadstats/status/1549949834592862210)
+
+07/18/2022 - [Even Bret's isopropyl alcohol idea isn't original](https://twitter.com/thebadstats/status/1549239775277621248)
+
+07/17/2022 - [Darkhorse Podcast ??? - He delivers a decisive blow to his critics](https://twitter.com/thebadstats/status/1548677374509649920)
+
+07/06/2022 - [Darkhorse 133](https://twitter.com/thebadstats/status/1544851514975367168)
+
+07/06/2022 - [Bret calls me a coward](https://twitter.com/thebadstats/status/1544748419285012480)
+
+06/28/2022 - [Bret and Maajid Nawaz](https://twitter.com/thebadstats/status/1542017487394328577)
+
+06/25/2022 - [Bret answers my telomere question](https://twitter.com/thebadstats/status/1540881197491843073)
+
+06/23/2022 - [Bret and Konstantin Kisin](https://twitter.com/thebadstats/status/1540190443303862272)
+
+06/11/2022 - [Darkhorse #130- Heather' icy lake](https://twitter.com/thebadstats/status/1535822575971889152)
+
+06/04/2022 - [Darkhorse ??? They share the superfinitist blog post](https://twitter.com/thebadstats/status/1533239823036608514)
+
+05/28/2022 - [CRT caused Uvalde](https://twitter.com/thebadstats/status/1530737739582255104)
+
+05/07/2022 - [Darkhorse Podcast #126: Sophistry and the dumb all-cause mortality study](https://twitter.com/thebadstats/status/1523096922843537408)
+
+04/29/2022 - [Thirsty to get into the groomer game](https://twitter.com/thebadstats/status/1520202107957043200)
+
+04/17/2022 - [Darkhorse #123 - random trans stuff](https://twitter.com/thebadstats/status/1515855887381848065)
+
+04/02/2022 - [Darkhorse ??? - Bret was wrong about TOGETHER trial BUT...](https://twitter.com/thebadstats/status/1513400073991774208)
+
+04/09/2022 - [Renting a hall for Bret's homosexuality theory](https://twitter.com/thebadstats/status/1512737657809375240)
+
+04/04/2022 - [Anti diaper stance](https://twitter.com/thebadstats/status/1510901866913153027)
+
+04/02/2022 - [Bret and Heather have been vindicated! But...](https://twitter.com/thebadstats/status/1510454672733089793)
+
+03/31/2022 - [Bret would mandate ivermectin](https://twitter.com/thebadstats/status/1509590088518307842)
+
+
 
 03/19/2022 - [DarkHorse episode 119](https://twitter.com/thebadstats/status/1505307560089333760)  ([unroll](https://threadreaderapp.com/thread/1505307560089333760.html))
 
@@ -71,6 +139,39 @@
 
 ### Jordan Peterson
 
+08/15/2022 [Jordan Peterson on climate change again](https://twitter.com/thebadstats/status/1559225117472739329)
+
+07/22/2022 [He literally doesn't understand externalities](https://twitter.com/thebadstats/status/1550608752188919809)
+
+07/20/2022 [His plan to defeat Russia is to capitulate](https://twitter.com/thebadstats/status/1549916053144145921)
+
+07/19/2022 [Misunderstood trans ally](https://twitter.com/thebadstats/status/1549394627861524481)
+
+07/15/2022 [Butchers and Liars, "budding beauties" and their breasts](https://twitter.com/thebadstats/status/1548070698844766208)
+
+07/11/2022 [Holodomor gotcha](https://twitter.com/thebadstats/status/1546621570885357568)
+
+07/10/2022 [On Russia and Ukraine](https://twitter.com/thebadstats/status/1546327272780472321)
+
+07/01/2022 [No adult should be able to get gender affirming surgery](https://twitter.com/thebadstats/status/1542934826449137664)
+
+07/01/2022 ["Twitter Ban" - Adult gender affirming surgery is like nazi medical experiments](https://twitter.com/thebadstats/status/1542930870012563456)
+
+06/30/2022 [JBP and Rubin on gay marriage](https://twitter.com/thebadstats/status/1542515969368530947)
+
+06/22/2022 [JBP posts the bad adverse events of special interest study](https://twitter.com/thebadstats/status/1539620691779002369)
+
+06/16/2022 [Lies. Lies. Lies.](https://twitter.com/thebadstats/status/1537481429726031872)
+
+05/26/2022 [You can see your own DNA on mushrooms](https://twitter.com/thebadstats/status/1529964174691794944)
+
+05/04/2022 [Weeping at the Hoover Institute](https://twitter.com/thebadstats/status/1522081691518398465)
+
+03/28/2022 [Revernge against God for the crime of Being](https://twitter.com/thebadstats/status/1508579434441236482)
+
+
+
+
 02/15/2022 [JBP on the trucker convoy](https://twitter.com/thebadstats/status/1493745365522128899) ([unroll](https://threadreaderapp.com/thread/1493745365522128899.html))
 
 01/25/2022 [Jordan Peterson on climate change](https://twitter.com/thebadstats/status/1486103450446303234) ([unroll](https://threadreaderapp.com/thread/1486103450446303234.html))
@@ -111,6 +212,14 @@
 
 ### Joe Rogan
 
+08/04/2022 [Democrats who are obsessed with politics are fat](https://twitter.com/thebadstats/status/1555214912552464386) 
+
+07/04/2022 [False equivalence, hypocrisy about his own fearmongering](https://twitter.com/thebadstats)
+
+07/04/2022 [Alex Jones more right than wrong](https://twitter.com/thebadstats/status/1544030177012813824)
+
+
+
 01/31/2022 [Joe Rogan's intellectual curiosity](https://twitter.com/thebadstats/status/1488375235195801600) ([unroll](https://threadreaderapp.com/thread/1488375235195801600.html))
 
 01/26/2022 [Joe Rogan calls me out](https://twitter.com/thebadstats/status/1486527499148279808) ([unroll](https://threadreaderapp.com/thread/1486527499148279808.html))
@@ -132,6 +241,19 @@
 ### Sam Harris
 
 10/30/2021 [Holocaust denial isn't like antivaxism](https://twitter.com/thebadstats/status/1454596746139426817) ([unroll](https://threadreaderapp.com/thread/1454596746139426817.html))
+
+### Misc People
+
+07/26/2022 [Jennifer Morse](https://twitter.com/thebadstats/status/1552171830009442304)
+
+07/08/2022 [Shermer and Helen Joyce](https://twitter.com/thebadstats/status/1545653723967328256)
+
+04/26/2022 [Elon's 'brain does back propagation' comment](https://twitter.com/thebadstats/status/1519117835330408450)
+
+04/19/2022 [Jesse Michels and Alex Jones on physics](https://twitter.com/thebadstats/status/1516643334269247493)
+
+04/06/2022 [Aubrey Marcus and the Atlantis Guy](https://twitter.com/thebadstats/status/1511883433366069260)
+
 
 ### General Thoughts
 
