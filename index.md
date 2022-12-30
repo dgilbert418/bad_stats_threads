@@ -6,6 +6,9 @@
 
 11/01/2022 - [Chomsky implies to Lex that talking to Putin would be ridiculous](https://twitter.com/thebadstats/status/1587504282391044096)
 
+10/24/2022 - [Kanye on Lex](https://twitter.com/thebadstats/status/1584708886195425281)
+
+10/22/2022 - [Kanye would have Hitler on the podcast](https://twitter.com/thebadstats/status/1583766779024637952)
 
 
 ### John Campbell
@@ -16,6 +19,13 @@
 
 11/01/2022 - [Bottom of the barrel covid genetics theories](https://twitter.com/thebadstats/status/1587626009867624448)
 
+10/26/2022 - [EU ordered 10x the necessary doses!](https://twitter.com/thebadstats/status/1585443247848972293)
+
+10/22/2022 - [Lethal Boston covid engineering talking point](https://twitter.com/thebadstats/status/1583958360029700096)
+
+10/04/2022 - [Telling people to take IVM for Covid ... but sarcastically](https://twitter.com/thebadstats/status/1577459770264408065)
+
+10/02/2022 - [JC becomes concerned with the WEF](https://twitter.com/thebadstats/status/1576696746004033537)
 
 
 
@@ -68,6 +78,15 @@
 11/01/2022 - [Bret defines pornography](https://twitter.com/thebadstats/status/1587564749826531335)
 
 10/29/2022 - [Bret is getting coded messages on his phone](https://twitter.com/thebadstats/status/1586492527988776960)
+
+10/16/2022 - [Bret mad about Robert Wright's tweet](https://twitter.com/thebadstats/status/1581798009553055746)
+
+10/14/2022 - [Democrats are intentionally sabotaging the military with vaccine mandates](https://twitter.com/thebadstats/status/1580849694455889920)
+
+10/08/2022 - [Only Bret knows about issues with heritability](https://twitter.com/thebadstats/status/1578936857986969600)
+
+
+
 
 
 08/16/2022 - ["If circumcision was simply negative, selection would have eliminated it."](https://twitter.com/thebadstats/status/1559685004233388032)
@@ -181,6 +200,13 @@
 
 11/03/2022 [Me reading Jordan Peterson poems](https://twitter.com/thebadstats/status/1588232454162116608)
 
+10/27/2022 [Jordan Peterson hijinx at Al Aqsa mosque](https://twitter.com/thebadstats/status/1585826382008840192)
+
+10/17/2022 [Depends on what you mean by...](https://twitter.com/thebadstats/status/1582116906449838080)
+
+10/09/2022 [Dennis Prager is pleased that Dave overcame his fear of circumcising his son](https://twitter.com/thebadstats/status/1579168549104279552)
+
+
 
 
 
@@ -289,6 +315,8 @@
 
 ### Sam Harris
 
+10/26/2022 [Very 'rational' thread about Kanye](https://twitter.com/thebadstats/status/1585397835746357248)
+
 10/30/2021 [Holocaust denial isn't like antivaxism](https://twitter.com/thebadstats/status/1454596746139426817) ([unroll](https://threadreaderapp.com/thread/1454596746139426817.html))
 
 ### Misc People
@@ -302,6 +330,8 @@
 12/7/2022 [Destiny pushes back on Triggernometry](https://twitter.com/thebadstats/status/1600592431623200768)
 
 11/25/2022 [Gad Saad is virtuous; Sam Harris is not](https://twitter.com/thebadstats/status/1596184695615602688)
+
+10/17/2022 [Megan Kelly being an antivaxxer](https://twitter.com/thebadstats/status/1581938234489118721)
 
 
 
