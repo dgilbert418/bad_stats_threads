@@ -319,27 +319,37 @@
 
 10/30/2021 [Holocaust denial isn't like antivaxism](https://twitter.com/thebadstats/status/1454596746139426817) ([unroll](https://threadreaderapp.com/thread/1454596746139426817.html))
 
-### Misc People
+### Elon Musk
+
+10/1/2022 [Elon's doing equations now](https://twitter.com/thebadstats/status/1576109566160293889)
+
+04/26/2022 [Elon's 'brain does back propagation' comment](https://twitter.com/thebadstats/status/1519117835330408450)
+
+
+### Gad Saad
 
 12/16/2022 [Gad Saad doesn't think about Sam Harris](https://twitter.com/thebadstats/status/1603761163858108418)
 
-12/13/2022 [DeSantis roundtable deboonked!](https://twitter.com/thebadstats/status/1602798958199263232)
+11/25/2022 [Gad Saad is virtuous; Sam Harris is not](https://twitter.com/thebadstats/status/1596184695615602688)
+
+### Triggernometry
 
 12/10/2022 [Yes, Triggernometry is right wing](https://twitter.com/thebadstats/status/1601580245844230144)
 
 12/7/2022 [Destiny pushes back on Triggernometry](https://twitter.com/thebadstats/status/1600592431623200768)
 
-11/25/2022 [Gad Saad is virtuous; Sam Harris is not](https://twitter.com/thebadstats/status/1596184695615602688)
+
+
+### Misc People
+
+
+12/13/2022 [DeSantis roundtable deboonked!](https://twitter.com/thebadstats/status/1602798958199263232)
 
 10/17/2022 [Megan Kelly being an antivaxxer](https://twitter.com/thebadstats/status/1581938234489118721)
-
-
 
 07/26/2022 [Jennifer Morse](https://twitter.com/thebadstats/status/1552171830009442304)
 
 07/08/2022 [Shermer and Helen Joyce](https://twitter.com/thebadstats/status/1545653723967328256)
-
-04/26/2022 [Elon's 'brain does back propagation' comment](https://twitter.com/thebadstats/status/1519117835330408450)
 
 04/19/2022 [Jesse Michels and Alex Jones on physics](https://twitter.com/thebadstats/status/1516643334269247493)
 
