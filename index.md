@@ -27,6 +27,9 @@
 
 10/02/2022 - [JC becomes concerned with the WEF](https://twitter.com/thebadstats/status/1576696746004033537)
 
+08/30/2022 - [Antivax talking points getting so abstract](https://twitter.com/thebadstats/status/1564755486221602817)
+
+08/27/2022 - [DarkHorse 139 - the tennis conspiracy](https://twitter.com/thebadstats/status/1563651490312376320)
 
 
 08/09/2022 - [He's a Tory](https://twitter.com/thebadstats/status/1556938927763644416)
@@ -85,9 +88,7 @@
 
 10/08/2022 - [Only Bret knows about issues with heritability](https://twitter.com/thebadstats/status/1578936857986969600)
 
-
-
-
+08/20/2022 - [Wrong again about the Benn paper](https://twitter.com/thebadstats/status/1561152374315487232)
 
 08/16/2022 - ["If circumcision was simply negative, selection would have eliminated it."](https://twitter.com/thebadstats/status/1559685004233388032)
 
@@ -204,7 +205,20 @@
 
 10/17/2022 [Depends on what you mean by...](https://twitter.com/thebadstats/status/1582116906449838080)
 
-10/09/2022 [Dennis Prager is pleased that Dave overcame his fear of circumcising his son](https://twitter.com/thebadstats/status/1579168549104279552)
+09/27/2022 [JBP weeps for the incels](https://twitter.com/thebadstats/status/1574877821511442432)
+
+09/12/2022 [Transphobia with Helen Joyce](https://twitter.com/thebadstats/status/1569423786935750656)
+
+09/07/2022 [Well-Tempered Professor](https://twitter.com/thebadstats/status/1567519044395483136)
+
+09/05/2022 [Complaining about Twitter](https://twitter.com/thebadstats/status/1566968983232073729)
+
+08/28/2022 [The dream analysis with Greg Hurwitz](https://twitter.com/thebadstats/status/1564109020452909056)
+
+08/19/2022 [Jordan Peterson on Lex Fridman](https://twitter.com/thebadstats/status/1560787705227018240)
+
+
+
 
 
 
@@ -332,6 +346,9 @@
 
 11/25/2022 [Gad Saad is virtuous; Sam Harris is not](https://twitter.com/thebadstats/status/1596184695615602688)
 
+08/25/2022 [Gad Saad is NOT mad that Sam Harris blocked him](https://twitter.com/thebadstats/status/1562821702362341376)
+
+
 ### Triggernometry
 
 12/10/2022 [Yes, Triggernometry is right wing](https://twitter.com/thebadstats/status/1601580245844230144)
@@ -345,7 +362,12 @@
 
 12/13/2022 [DeSantis roundtable deboonked!](https://twitter.com/thebadstats/status/1602798958199263232)
 
+
 10/17/2022 [Megan Kelly being an antivaxxer](https://twitter.com/thebadstats/status/1581938234489118721)
+
+10/09/2022 [Dennis Prager is pleased that Dave overcame his fear of circumcising his son](https://twitter.com/thebadstats/status/1579168549104279552)
+
+08/25/2022 [Schmachtenberger is boring](https://twitter.com/thebadstats/status/1562970214702010369)
 
 07/26/2022 [Jennifer Morse](https://twitter.com/thebadstats/status/1552171830009442304)
 
