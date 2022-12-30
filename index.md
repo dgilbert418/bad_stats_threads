@@ -1,6 +1,23 @@
 ## Threads
 
+### Lex Fridman
+
+11/07/2022 - [Elon Musk 5D Chess Theory intensifies](https://twitter.com/thebadstats/status/1589722806417522689)
+
+11/01/2022 - [Chomsky implies to Lex that talking to Putin would be ridiculous](https://twitter.com/thebadstats/status/1587504282391044096)
+
+
+
 ### John Campbell
+
+11/15/2022 - [JC being objective and factual on GBNews](https://twitter.com/thebadstats/status/1592615229460213760)
+
+11/11/2022 - [North Korean prisoner impression](https://twitter.com/thebadstats/status/1591212719210135553)
+
+11/01/2022 - [Bottom of the barrel covid genetics theories](https://twitter.com/thebadstats/status/1587626009867624448)
+
+
+
 
 08/09/2022 - [He's a Tory](https://twitter.com/thebadstats/status/1556938927763644416)
 
@@ -35,6 +52,23 @@
 10/09/2021 [Lazy indignant response to criticism](https://twitter.com/thebadstats/status/1446917361777315842) ([unroll](https://threadreaderapp.com/thread/1446917361777315842.html))
 
 ### DarkHorse Podcast (Bret Weinstein and Heather Heying)
+
+12/3/2022 - [DarkHorse #152](https://twitter.com/thebadstats/status/1599196514642907136)
+
+11/26/2022 - [DarkHorse #151](https://twitter.com/thebadstats/status/1596664755019984897)
+
+11/23/2022 - [Dumb misinfo about the FDA changing its mind about IVM](https://twitter.com/thebadstats/status/1595528954609213442)
+
+11/21/2022 - [Robert Wright on DarkHorse](https://twitter.com/thebadstats/status/1594741347126513664)
+
+11/19/2022 - [Darkhorse #150 (time travelling money printer)](https://twitter.com/thebadstats/status/1594203139753750528)
+
+11/05/2022 - [DarkHorse #148](https://twitter.com/thebadstats/status/1589040914479329280)
+
+11/01/2022 - [Bret defines pornography](https://twitter.com/thebadstats/status/1587564749826531335)
+
+10/29/2022 - [Bret is getting coded messages on his phone](https://twitter.com/thebadstats/status/1586492527988776960)
+
 
 08/16/2022 - ["If circumcision was simply negative, selection would have eliminated it."](https://twitter.com/thebadstats/status/1559685004233388032)
 
@@ -139,6 +173,17 @@
 
 ### Jordan Peterson
 
+12/28/2022 [Most EPIC Jordan Peterson Moments of 2022](https://twitter.com/thebadstats/status/1608254834700058626)
+
+12/17/2022 [Putin just needs a hug](https://twitter.com/thebadstats/status/1604081878168129536)
+
+11/13/2022 [Jordan wants sites to be legally required to separate out anonymous accounts](https://twitter.com/thebadstats/status/1591969031573344257)
+
+11/03/2022 [Me reading Jordan Peterson poems](https://twitter.com/thebadstats/status/1588232454162116608)
+
+
+
+
 08/15/2022 [Jordan Peterson on climate change again](https://twitter.com/thebadstats/status/1559225117472739329)
 
 07/22/2022 [He literally doesn't understand externalities](https://twitter.com/thebadstats/status/1550608752188919809)
@@ -167,7 +212,7 @@
 
 05/04/2022 [Weeping at the Hoover Institute](https://twitter.com/thebadstats/status/1522081691518398465)
 
-03/28/2022 [Revernge against God for the crime of Being](https://twitter.com/thebadstats/status/1508579434441236482)
+03/28/2022 [Revenge against God for the crime of Being](https://twitter.com/thebadstats/status/1508579434441236482)
 
 
 
@@ -187,6 +232,10 @@
 02/25/2021 [Transphobia](https://twitter.com/thebadstats/status/1365056158155816969) ([unroll](https://threadreaderapp.com/thread/1365056158155816969.html))
 
 ### Eric Weinstein
+
+11/8/2022 [Flash flood warning was a conspiracy to influence the election](https://twitter.com/thebadstats/status/1590216587768115200)
+
+
 
 02/12/2022 [Eric with Hal Puthoff](https://twitter.com/thebadstats/status/1492582218358673409) ([unroll](https://threadreaderapp.com/thread/1492582218358673409.html))
 
@@ -243,6 +292,18 @@
 10/30/2021 [Holocaust denial isn't like antivaxism](https://twitter.com/thebadstats/status/1454596746139426817) ([unroll](https://threadreaderapp.com/thread/1454596746139426817.html))
 
 ### Misc People
+
+12/16/2022 [Gad Saad doesn't think about Sam Harris](https://twitter.com/thebadstats/status/1603761163858108418)
+
+12/13/2022 [DeSantis roundtable deboonked!](https://twitter.com/thebadstats/status/1602798958199263232)
+
+12/10/2022 [Yes, Triggernometry is right wing](https://twitter.com/thebadstats/status/1601580245844230144)
+
+12/7/2022 [Destiny pushes back on Triggernometry](https://twitter.com/thebadstats/status/1600592431623200768)
+
+11/25/2022 [Gad Saad is virtuous; Sam Harris is not](https://twitter.com/thebadstats/status/1596184695615602688)
+
+
 
 07/26/2022 [Jennifer Morse](https://twitter.com/thebadstats/status/1552171830009442304)
 
