@@ -29,9 +29,6 @@
 
 08/30/2022 - [Antivax talking points getting so abstract](https://twitter.com/thebadstats/status/1564755486221602817)
 
-08/27/2022 - [DarkHorse 139 - the tennis conspiracy](https://twitter.com/thebadstats/status/1563651490312376320)
-
-
 08/09/2022 - [He's a Tory](https://twitter.com/thebadstats/status/1556938927763644416)
 
 08/08 2022 - [Trying to be homophobic about monkeypox](https://twitter.com/thebadstats/status/1556819369904066560)
@@ -87,6 +84,8 @@
 10/14/2022 - [Democrats are intentionally sabotaging the military with vaccine mandates](https://twitter.com/thebadstats/status/1580849694455889920)
 
 10/08/2022 - [Only Bret knows about issues with heritability](https://twitter.com/thebadstats/status/1578936857986969600)
+
+08/27/2022 - [DarkHorse 139 - the tennis conspiracy](https://twitter.com/thebadstats/status/1563651490312376320)
 
 08/20/2022 - [Wrong again about the Benn paper](https://twitter.com/thebadstats/status/1561152374315487232)
 
